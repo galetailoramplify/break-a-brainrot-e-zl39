@@ -1,4 +1,4 @@
-#  
+#  vip Scripts for break a brainrot egg is the best break a brainrot egg Script, featuring speed and auto-sell. Safe and powerful for all your needs.
 
 
 
